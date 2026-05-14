@@ -1,4 +1,4 @@
-# 
+# CapCut for macOS elite Automation: version-history & AI-upscaling offers the most advanced CapCut for macOS automation, with version-history and AI-upscaling. Ideal for
 
 
 
